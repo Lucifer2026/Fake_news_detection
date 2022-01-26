@@ -32,8 +32,3 @@ In the modern democratic society the proliferation of the fake news is a huge pr
 
 
 
-
-![TRUE](https://user-images.githubusercontent.com/90950629/150345523-fcf63315-0a7d-4ef8-b462-e9333ed075a0.jpg)
-![TRUE_1 jpg](https://user-images.githubusercontent.com/90950629/150345542-658395e3-9671-4410-b603-02e4afdc7be1.png)
-![Fake](https://user-images.githubusercontent.com/90950629/150346106-dd86d870-43f8-430e-bdbd-49e37263a6e3.jpg)
-![Fake2](https://user-images.githubusercontent.com/90950629/150346122-e70a1b32-6e35-46db-a245-81e3feca35df.png)
